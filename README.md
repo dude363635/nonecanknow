@@ -1,4 +1,6 @@
 # linksforby_pasing
+freedns: http://freedns.afraid.org/signup/activate.php?3DNO95gAciTsJ3m6vVNsOuzq
+
 link to extrememath site: https://comelearntoday.xyz
 
 

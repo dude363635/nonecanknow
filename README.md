@@ -18,4 +18,4 @@ link to fun site: https://fun-reloaded3.netlify.app
 
 
 
-links to shdo: a.lt.wip.la b.lt.wip.la c.lt.wip.la d.lt.wip.la e.lt.wip.la f.lt.wip.la g.lt.wip.la h.lt.wip.la i.lt.wip.la j.lt.wip.la k.lt.wip.la l.lt.wip.la m.lt.wip.la n.lt.wip.la o.lt.wip.la p.lt.wip.la q.lt.wip.la r.lt.wip.la s.lt.wip.la t.lt.wip.la u.lt.wip.la v.lt.wip.la w.lt.wip.la x.lt.wip.la y.lt.wip.la z.lt.wip.la
+links to shdo: https://a.lt.wip.la https://b.lt.wip.la https://c.lt.wip.la https://d.lt.wip.la e.lt.wip.la https://f.lt.wip.la https://g.lt.wip.la https://h.lt.wip.la https://i.lt.wip.la https://j.lt.wip.la https://k.lt.wip.la https://l.lt.wip.la https://m.lt.wip.la https://n.lt.wip.la https://o.lt.wip.la https://p.lt.wip.la https://q.lt.wip.la https://r.lt.wip.la https://s.lt.wip.la https://t.lt.wip.la https://u.lt.wip.la https://v.lt.wip.la https://w.lt.wip.la https://x.lt.wip.la https://y.lt.wip.la https://z.lt.wip.la

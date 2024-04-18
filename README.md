@@ -1,5 +1,5 @@
 # linksforby_pasing
-freedns: education.yiff.fi
+freedns: https://education.yiff.fi
 
 link to extrememath site: https://comelearntoday.xyz
 

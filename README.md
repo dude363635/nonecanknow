@@ -1,8 +1,10 @@
 # linksforby_pasing
+AU server maybe better speeds: https://aluu.xyz/
+
 kazzy: https://kazwire.com/
 
 
-ludisomethingo https://ludicrous.icu/
+ludisomethingo: https://ludicrous.icu/
 
 
 freedns: https://education.yiff.fi

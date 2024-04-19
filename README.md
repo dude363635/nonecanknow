@@ -1,4 +1,8 @@
 # linksforby_pasing
+
+ludisomethingo https://ludicrous.icu/
+
+
 freedns: https://education.yiff.fi
 
 link to extrememath site: https://comelearntoday.xyz

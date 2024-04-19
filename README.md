@@ -1,4 +1,6 @@
 # linksforby_pasing
+nowgg offical: https://newalgebra.com
+
 AU server maybe better speeds: https://aluu.xyz/
 
 kazzy: https://kazwire.com/

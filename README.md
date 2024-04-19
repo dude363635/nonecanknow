@@ -1,4 +1,6 @@
 # linksforby_pasing
+kazzy: https://kazwire.com/
+
 
 ludisomethingo https://ludicrous.icu/
 

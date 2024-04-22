@@ -30,7 +30,7 @@ link to fun site: https://fun-reloaded4.netlify.app
 
 
 
-links to shdo: https://shadow-ai.app 
+links to shdo: https://shadow-ai.app https://rave.dob.jp/
 
 
 

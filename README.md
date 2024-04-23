@@ -1,7 +1,7 @@
 # linksforby_pasing
-nowgg offical: https://newalgebra.com
+nowgg roblx: https://newalgebra.com
 
-AU server maybe better speeds: https://aluu.xyz/
+maybe better speeds: https://aluu.xyz/
 
 kazzy: https://kazwire.com/
 
@@ -9,7 +9,7 @@ kazzy: https://kazwire.com/
 ludisomethingo: https://ludicrous.icu/
 
 
-freedns: https://education.yiff.fi
+custom made shado: https://education.yiff.fi
 
 link to extrememath site: https://comelearntoday.xyz
 
@@ -23,14 +23,14 @@ link to laser tag: https://turbowarp.org/17783489/fullscreen?interpolate&hqpen
 
 
 
-link to fun site: https://fun-reloaded4.netlify.app
+link to some random persons site: https://fun-reloaded4.netlify.app
 
 
 
 
 
 
-links to shdo: https://shadow-ai.app https://rave.dob.jp/
+links to shado: https://shadow-ai.app https://rave.dob.jp/ https://prepareformath.gurdit.com/
 
 
 

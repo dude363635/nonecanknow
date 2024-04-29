@@ -1,18 +1,18 @@
 # linksforby_pasing
 
-Random: https://tnvpn.com https://nebulaproxy.io https://definitelyscience.com https://kaji.gs
+mightwork: https://662f36e99d51f365913b411b--fancy-wisp-b3251e.netlify.app/
 
-Hly Unblocker: https://holyubofficial.net
+Random might work: https://dragongames.online https://friv-2025.com https://friv-2026.com https://creatii.ro https://povesti.ro https://mathematics-resources.com/ 
 
-Incognito: https://incog.dev
+Random not working: https://tnvpn.com https://nebulaproxy.io https://definitelyscience.com https://kaji.gs
 
-totallsciecne: https://totallyscience.co
+Hly Unblocker not working: https://holyubofficial.net
 
-Radeon: https://radeon.games
+Incognito not working: https://incog.dev
 
-Stug links maybe: https://stugio.streum.jw.org/ 
+totallsciecne not working: https://totallyscience.co
 
-bloxd maybe: 
+Radeon doesn't exist: https://radeon.games
 
 nowgg roblx: https://newalgebra.com
 

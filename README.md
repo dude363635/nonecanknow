@@ -2,7 +2,7 @@
 
 Slowguardin: https://vercelsg.vercel.app/ https://slowsgg.vercel.app
 
-Tinf0il: https://tinf0il.tech
+Tinf0il: https://dfhgfhd54tinf0il.tech https://35636tinf0il.tech https://45364tinf0il.tech https://5463tinf0il.tech https://3563tinf0il.tech https://13tinf0il.tech
 
 Blackout: https://dotlyhiyou-github-io.vercel.app/ https://blackoutgames.pages.dev https://blackoutgames.netlify.app 
 https://hihowareyou.vercel.app/ https://mathisgreat.netlify.app/

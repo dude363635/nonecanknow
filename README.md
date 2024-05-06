@@ -1,6 +1,6 @@
 # linksforby_pasing
 
-Slowguardin: https://vercelsg.vercel.app/
+Slowguardin: https://vercelsg.vercel.app/ https://slowsgg.vercel.app
 
 Tinf0il: https://tinf0il.tech
 

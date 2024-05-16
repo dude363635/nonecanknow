@@ -1,4 +1,6 @@
 # linksforby_pasing
+new: https://spitfireghost.iaxia.cl/ https://astro-static.pages.dev/static/ https://cliffsletdetriment.com/c5fj94yw3?key=354da0f80171280b74971d880b432e6b
+
 hm: https://s.id/150-Free-Unblocker-Proxies https://s.id/Fast-Furious-Unblocker https://s.id/Quick-Unblocker  https://s.id/100-Today-Best-Proxies https://s.id/Fast-Working-Proxies
 
 Slowguardin: https://vercelsg.vercel.app/ https://slowsgg.vercel.app

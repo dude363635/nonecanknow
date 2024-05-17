@@ -1,4 +1,7 @@
 # linksforby_pasing
+
+https://accounts.nvgs.nvidia.com/api/1/message/VerifyEmail?q=eyJyZWRpcmVjdFVybCI6Imh0dHBzOi8vbG9naW4ubnZncy5udmlkaWEuY29tL3YxL25mYWN0b3IvZW1haWwtYXV0aD9jb2RlPUFVamk0YUZ3bk4xamdvZXJfaENZaDRJaUNLUjVwNFZXUGpvY0JxYjF6Y1ctLVM1Q3E2d19Da2hkWkJvWWRKMXkuTVRJME1EZ3lNemcwTURZeE16azJOVGd5TkE9PSZ0aGVtZT1Ob2lyJmxvY2FsZT1lbi1HQiIsIm1lc3NhZ2VJZCI6IjEyNDA4MjM4NDA3MzU2MDA2NDAifQ%3D%3D
+
 new: https://spitfireghost.iaxia.cl/ https://astro-static.pages.dev/static/ https://cliffsletdetriment.com/c5fj94yw3?key=354da0f80171280b74971d880b432e6b
 
 hm: https://s.id/150-Free-Unblocker-Proxies https://s.id/Fast-Furious-Unblocker https://s.id/Quick-Unblocker  https://s.id/100-Today-Best-Proxies https://s.id/Fast-Working-Proxies

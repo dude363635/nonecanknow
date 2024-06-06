@@ -1,4 +1,43 @@
 # linksforby_pasing
+Otherstuff/random:
+https://sites.google.com/view/sport-unblocked-games/home
+
+otherstuff/shuttleub:
+https://geometry.triutama.com/
+https://science.paulmccune.com/
+https://cheesy.ilovepretzels.shop
+https://math.kasd.nl
+
+otherstuff/dog:
+https://school.studies.college.awiki.org/
+https://incest.shitgoddamnhellfuck.com/
+https://d0ntsharethlsliinkwithanyonorelse.uk.to/
+https://rrisd.internet.filters.rugeleychessclub.co.uk/
+https://screw.rrisd.internet.filters.rugeleychessclub.co.uk/
+https://izwgz.compadrones.cl/
+https://erm2t.ix.tc/
+
+Otherstuff/intersella:
+https://education.uk.to/
+https://educ.flink.cl/
+https://sunshinephotos.our-wedding-photos.org.uk/
+https://premiumrice.farmernepal.com.np/
+https://edu.flink.cl/
+https://schooltech-six.vercel.app/
+https://educationalstudy.duckdns.org/
+https://edu.gotoinfo.ch/
+
+otherstuff/rammerhaed:
+https://edu.gregorius.uk/
+https://ks.if-agent.com/
+https://vestercrest.bot.nu/
+https://jamodhasnochromebook.punked.us/
+https://pvmssucks.us.to/
+https://garrisonownsulol.us.to/
+https://chrisisgoofy.strangled.net/
+https://christopherisbadatixl.minecraftnoob.com/
+https://japanise.telegramsam.net/
+https://kasa.norushcharge.com/
 
 maybe shelshoc: https://freegames.io/game/shell-shockers
 

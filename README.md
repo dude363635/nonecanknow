@@ -38,6 +38,7 @@ https://chrisisgoofy.strangled.net/
 https://christopherisbadatixl.minecraftnoob.com/
 https://japanise.telegramsam.net/
 https://kasa.norushcharge.com/
+https://2.gwj.one.pl/
 
 maybe shelshoc: https://freegames.io/game/shell-shockers
 

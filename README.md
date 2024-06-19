@@ -1,4 +1,12 @@
 # linksforby_pasing
+galicticx:
+https://galatikx.my.canva.site/
+https://galatik-vpn-austrailia.vercel.app/
+https://interstellar-delta-blush.vercel.app/
+https://galatik-vpn.vercel.app/
+https://galatikvpnasteroid.vercel.app/
+https://astroidv3-nu-eight.vercel.app/
+https://media.exid.me/uv/
 
 otherstuff/utopa
 https://friend-less-conor-lolidonthaveone.koyeb.app/

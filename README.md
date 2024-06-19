@@ -1,4 +1,5 @@
 # linksforby_pasing
+
 otherstuff/utopa
 https://friend-less-conor-lolidonthaveone.koyeb.app/
 https://angle.sci.amotaal.com/
@@ -66,6 +67,13 @@ https://christopherisbadatixl.minecraftnoob.com/
 https://japanise.telegramsam.net/
 https://kasa.norushcharge.com/
 https://2.gwj.one.pl/
+https://bitly-galatikx.duckdns.org/
+https://veretm.my.to/
+https://rammerhead.command.enterprises/
+https://proxyforfriends.hs.vc/
+https://xn--ip-ig4axdqdukj74quoce23k.socchanpxy.f5.si/
+https://xn--6oqa945bba644dca199ac8qo5fky0f.socchanpxy.f5.si/
+
 
 maybe shelshoc: https://freegames.io/game/shell-shockers
 

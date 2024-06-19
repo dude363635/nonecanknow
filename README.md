@@ -1,4 +1,25 @@
 # linksforby_pasing
+otherstuff/utopa
+https://friend-less-conor-lolidonthaveone.koyeb.app/
+https://angle.sci.amotaal.com/
+https://login.tutor.fununit.com/
+https://class.course.acslincoln.com/
+https://want-more-ismaeltech.koyeb.app/
+https://schoolfr-wpcero.koyeb.app/
+https://l.linklyhq.com/l/1w9cV
+https://utopiavercel-dev-mbpt.1.us-1.fl0.io/
+https://science-facts-molkify.koyeb.app/
+https://schooltech-sjhs.koyeb.app/
+https://schooltech-schooltech.koyeb.app/
+https://schooltechk-xzvb.onrender.com/
+https://dd-gyjx.onrender.com/
+https://schooltech-9bdq.onrender.com/
+https://schooltech-p6q3.onrender.com/
+https://utopia-dev-tapn.4.us-1.fl0.io/
+https://sq82st-8080.csb.app/
+https://mysoksstink-wqadewf-dev-qkjrijijuyguglu.1.us-1.fl0.io/
+
+
 Otherstuff/random:
 https://sites.google.com/view/sport-unblocked-games/home
 

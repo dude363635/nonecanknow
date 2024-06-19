@@ -10,7 +10,6 @@ https://math.kasd.nl
 
 otherstuff/dog:
 https://school.studies.college.awiki.org/
-https://incest.shitgoddamnhellfuck.com/
 https://d0ntsharethlsliinkwithanyonorelse.uk.to/
 https://rrisd.internet.filters.rugeleychessclub.co.uk/
 https://screw.rrisd.internet.filters.rugeleychessclub.co.uk/
@@ -28,6 +27,11 @@ https://educationalstudy.duckdns.org/
 https://edu.gotoinfo.ch/
 
 otherstuff/rammerhaed:
+https://hao-u.nevuer.com/
+https://tech.idigo.org/
+https://90.zach24.at/
+https://learn.mandarin.g2g.asia/
+
 https://edu.gregorius.uk/
 https://ks.if-agent.com/
 https://vestercrest.bot.nu/

@@ -1,6 +1,8 @@
 # linksforby_pasing
 
-COD: https://rayvonisamonkey.yourmom.eu.org/play/a/10008/b?utm_source=now.gg-partner&utm_medium=bot&utm_campaign=carl
+new galactik site: https://galatikx.us.to/
+
+COD mobile: https://rayvonisamonkey.yourmom.eu.org/play/a/10008/b?utm_source=now.gg-partner&utm_medium=bot&utm_campaign=carl
 
 new roblocs links:
 https://educationbluesky.com/ 

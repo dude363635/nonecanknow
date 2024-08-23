@@ -133,7 +133,13 @@ https://ria-er-mjog-pervert.strangled.net/
 https://love.sy.obl.ong/
 https://ohiorizzleruwuslaybaddieskibidimygyatt.dietpc.org/
 https://chemistryisboring.jcho.com/
-
+https://fisdpr0xy3.montessorigiaocu.com/
+https://itsjustme.wiki.gd/
+https://clever.com.xn--mgb0dcbsn.xn--c-sga.net/
+https://l.surajpyakurel.com.np/
+https://mgmt.lhost.dev/
+https://p.l5.ca/
+https://steveniscool.jumpingcrab.com/
 
 maybe shelshoc: https://freegames.io/game/shell-shockers
 

@@ -1,5 +1,11 @@
 # linksforby_pasing
 mroe random links for yall:
+https://srvusd.badsk.host/
+https://rammer2bunnno1.developer.li/
+https://y.ham.gd/
+https://already.vantagestrategy.com.au/
+ https://jxs7dxh5ra.minecraft.pe/
+ https://spje.dynipv6.de/
 https://k12.hfs-kols.com
 https://xn--kck5d2cu41m.minecraft.pe
 https://zlxdss.hs.vc

@@ -1,5 +1,15 @@
 # linksforby_pasing
 mroe random links for yall:
+https://txy.mathcardhomeworkdg.co/
+https://noahstinks.abatek.com/
+https://pagostepeapulc0.wan64.de/
+https://classroooooom.pagostepeapulco.gob.mx/
+https://shiokonbu.it123.ru/
+https://brawl.stars.84238.interteh.tk/
+https://fanguu.fangxu.tk/
+
+
+
 https://srvusd.badsk.host/
 https://rammer2bunnno1.developer.li/
 https://y.ham.gd/
